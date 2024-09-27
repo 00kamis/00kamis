@@ -1,11 +1,9 @@
 ## Hi there 👋
 
 <!-- olá meu nome é kamilly
-_sou aluna_
+- sou aluna
 
 📌 romano.kamilly@escola.pr.gov.br
-
-
 
 
 ### ig: @kamillymelllo
