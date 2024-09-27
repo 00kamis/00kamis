@@ -9,6 +9,5 @@
 ### ig: @kamillymelllo
 
 - 🔭 
-- 🌱 
-- ⚡ 
-![](https://tenor.com/bbiOY.gif)
+- 🧷🪻💌
+https://tenor.com/bebI9.gif
